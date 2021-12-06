@@ -11,4 +11,6 @@ Pour water into the stew and allow to boil for 5 min, then add the per boiled ri
 Allow to cook for 30 minutes while you add salt, maggie and other recipe to taste.Also add fish or meat of choice
 Cook for 10 minutes.
 Jellof rice is ready
+Nice meal ready
+
 
